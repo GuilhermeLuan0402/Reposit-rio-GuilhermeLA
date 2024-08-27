@@ -1,2 +1,2 @@
-# Reposit-rio-GuilhermeLA
+# Repositório-GuilhermeLA
 Coisas de escola, só o básico.
